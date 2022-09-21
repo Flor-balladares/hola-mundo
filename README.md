@@ -2,4 +2,4 @@
 
 mi primer repositorio
 
-i love  :mate:,:music:, :nature:
+i love  :mate:, 🏖️:, :pizza:,
